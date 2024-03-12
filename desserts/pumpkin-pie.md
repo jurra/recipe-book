@@ -7,6 +7,7 @@
 - Bake pumpkin/squash
 - Take out the inside of the pumpkin
 - Use 2 cups of pumpkin pulp per pie
+- 1 hot chilli pepper
 
 
 ## Ingredients
